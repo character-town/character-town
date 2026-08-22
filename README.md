@@ -5,7 +5,8 @@
 
 
 
-Nominate yourself or someone!You can also tell me if i added someone problematic.
+Nominate yourself or someone! 
+You can also tell me if i added someone problematic.
 
 https://charactertown.atabook.org
 
