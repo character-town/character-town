@@ -5,7 +5,7 @@
 
 
 
-Nominate yourself or someone!
+Nominate yourself or someone!You can also tell me if i added someone problematic.
 
 https://charactertown.atabook.org
 
