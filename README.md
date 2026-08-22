@@ -14,10 +14,15 @@ LAST UPDATE: 08/21/2026
 
 —————————————————————————
 
+
+[ @ACE0FHEART5 is the Chance of PonyTown! ]
+
+[ @DEBTHVERIFIED is the sx2 of PonyTown! ]
+
+[ @FIGURE-009 is the Knocker of PonyTown! ]
+
+[ @Gamblersi is the sp7 of PonyTown! ]
+
 [ @Maticissssssooocollll1333 is the Stat from Regretevator of PonyTown! ]
 
-[ @twottimey is the Two Time of Ponytown! ]
-
-[ @ACE0FHEART5 is the Chance of Ponytown! ]
-
-[ @FIGURE-009 is the Knocker of Ponytown! ]
+[ @twottimey is the Two Time of PonyTown! ]
