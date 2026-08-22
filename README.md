@@ -19,12 +19,18 @@ ORGANIZED IN ALPHABETICAL ORDER
 
 [@ACE0FHEART5 is the Chance of PonyTown!]
 
+[@Blame-John is the Shedletsky of PonyTown!]
+
 [@DEBTHVERIFIED is the sx2 of PonyTown!]
 
 [@FIGURE-009 is the Knocker of PonyTown!]
 
 [@Gamblersi is the sp7 of PonyTown!]
 
+[@itrappedfan is the FroggyDude of PonyTown!]
+
 [@Maticissssssooocollll1333 is the Stat from Regretevator of PonyTown!]
 
 [@twottimey is the Two Time of PonyTown!]
+
+[@TheHacker7n7 is the GroxMC of PonyTown!]
