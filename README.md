@@ -10,7 +10,7 @@ You can also tell me if i added someone problematic.
 
 https://charactertown.atabook.org
 
-LAST UPDATE: 08/21/2026
+LAST UPDATE: 08/22/2026
 
 ORGANIZED IN ALPHABETICAL ORDER
 
