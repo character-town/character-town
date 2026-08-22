@@ -12,6 +12,8 @@ https://charactertown.atabook.org
 
 LAST UPDATE: 08/21/2026
 
+ORGANIZED IN ALPHABETICAL ORDER
+
 —————————————————————————
 
 
