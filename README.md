@@ -23,6 +23,8 @@ ORGANIZED IN ALPHABETICAL ORDER
 
 [@DEBTHVERIFIED is the sx2 of PonyTown!]
 
+[@dearsonnet is the Black from VS imps of PonyTown!]
+
 [@disorderlyfashion is the Squirrelflight of Ponytown!]
 
 [@FIGURE-009 is the Knocker of PonyTown!]
@@ -31,7 +33,13 @@ ORGANIZED IN ALPHABETICAL ORDER
 
 [@itrappedfan is the FroggyDude of PonyTown!]
 
+[@itrap-2245 is the Itrapped of PonyTown!]
+
+[@kniferrific is the sx1 of PonyTown!]
+
 [@Maticissssssooocollll1333 is the Stat from Regretevator of PonyTown!]
+
+[@SONNELLINOENTHUSIAST is the Mafioso of PonyTown!]
 
 [@twottimey is the Two Time of PonyTown!]
 
