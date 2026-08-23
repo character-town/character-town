@@ -10,7 +10,7 @@ You can also tell me if i added someone problematic.
 
 https://charactertown.atabook.org
 
-LAST UPDATE: 22/08/2026
+LAST UPDATE: 23/08/2026
 
 ORGANIZED IN ALPHABETICAL ORDER
 
@@ -23,6 +23,8 @@ ORGANIZED IN ALPHABETICAL ORDER
 
 [@DEBTHVERIFIED is the sx2 of PonyTown!]
 
+[@disorderlyfashion is the Squirrelflight of Ponytown!]
+
 [@FIGURE-009 is the Knocker of PonyTown!]
 
 [@Gamblersi is the sp7 of PonyTown!]
@@ -34,3 +36,5 @@ ORGANIZED IN ALPHABETICAL ORDER
 [@twottimey is the Two Time of PonyTown!]
 
 [@TheHacker7n7 is the GroxMC of PonyTown!]
+
+[@voidbat is the Uzi Doorman of PonyTown!]
