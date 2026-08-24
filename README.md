@@ -10,7 +10,7 @@ You can also tell me if i added someone problematic.
 
 https://charactertown.atabook.org
 
-LAST UPDATE: 23/08/2026
+LAST UPDATE: 24/08/2026
 
 ORGANIZED IN ALPHABETICAL ORDER
 
@@ -20,6 +20,10 @@ ORGANIZED IN ALPHABETICAL ORDER
 [@ACE0FHEART5 is the Chance of PonyTown!]
 
 [@Blame-John is the Shedletsky of PonyTown!]
+
+[@bunchoffriends as the Anthony po of PonyTown!]
+
+[@coypisopilled is the Coy piso of PonyTown!]
 
 [@DEBTHVERIFIED is the sx2 of PonyTown!]
 
@@ -31,6 +35,8 @@ ORGANIZED IN ALPHABETICAL ORDER
 
 [@Gamblersi is the sp7 of PonyTown!]
 
+[@heartsparkdollarsign is the Security from Animal Hospital of PonyTown!]
+
 [@itrappedfan is the FroggyDude of PonyTown!]
 
 [@itrap-2245 is the Itrapped of PonyTown!]
@@ -38,6 +44,10 @@ ORGANIZED IN ALPHABETICAL ORDER
 [@kniferrific is the sx1 of PonyTown!]
 
 [@Maticissssssooocollll1333 is the Stat from Regretevator of PonyTown!]
+
+[@MrNovalite is the Astro Novalite of PonyTown!]
+
+[@monachgrievings is the Lord X of PonyTown!]
 
 [@SONNELLINOENTHUSIAST is the Mafioso of PonyTown!]
 
