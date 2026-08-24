@@ -21,7 +21,7 @@ ORGANIZED IN ALPHABETICAL ORDER
 
 [@Blame-John is the Shedletsky of PonyTown!]
 
-[@bunchoffriends as the Anthony po of PonyTown!]
+[@bunchoffriends is the Anthony po of PonyTown!]
 
 [@coypisopilled is the Coy piso of PonyTown!]
 
