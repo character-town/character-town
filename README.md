@@ -10,7 +10,7 @@ You can also tell me if i added someone problematic.
 
 https://charactertown.atabook.org
 
-LAST UPDATE: 24/08/2026
+LAST UPDATE: 25/08/2026
 
 ORGANIZED IN ALPHABETICAL ORDER
 
@@ -18,6 +18,10 @@ ORGANIZED IN ALPHABETICAL ORDER
 
 
 [@ACE0FHEART5 is the Chance of PonyTown!]
+
+[@Aspenolia is the Aspen of PonyTown!]
+
+[@aeszz is the Clark kent of PonyTown!]
 
 [@Blame-John is the Shedletsky of PonyTown!]
 
@@ -30,6 +34,8 @@ ORGANIZED IN ALPHABETICAL ORDER
 [@dearsonnet is the Black from VS imps of PonyTown!]
 
 [@disorderlyfashion is the Squirrelflight of Ponytown!]
+
+[@DrawingKathy is the Woody Pride of PonyTown!]
 
 [@FIGURE-009 is the Knocker of PonyTown!]
 
@@ -50,6 +56,8 @@ ORGANIZED IN ALPHABETICAL ORDER
 [@monachgrievings is the Lord X of PonyTown!]
 
 [@SONNELLINOENTHUSIAST is the Mafioso of PonyTown!]
+
+[@Silis-DoNotCover is the Buzz Lightyear of PonyTown!]
 
 [@twottimey is the Two Time of PonyTown!]
 
