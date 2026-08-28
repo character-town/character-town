@@ -1,6 +1,5 @@
 [![Hits](https://hits.sh/github.com/character-town.svg?label=hits!&color=dfb317&labelColor=b86b13)](https://hits.sh/github.com/character-town/)
 
-<img src="https://img.sanishtech.com/u/e29bdefebd9c6d84d417cda886b16618.png" alt="IMG_0759" width="320" height="320" loading="lazy" style="max-width:100%;height:auto;">
 
 
 
